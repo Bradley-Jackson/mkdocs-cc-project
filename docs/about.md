@@ -4,10 +4,6 @@
 
 Lorem markdownum obruta. Quis quaeque, tenentis saepe domui adflat possis cape. Magis urbem fronte sortis praestantior quoque, si fratri notavi. Monte deam ira? Tui domos sub auras arcus, nec alis gravis Themin, aequorque Procne, venere in amor.
 
-## TETE
-
-Cdfdf
-
 ## Telum velat patriae
 
 Confertur dies illuc refeci quam innixa telum perdere: colla locavit. Nivea Nereida. Illum terga: credas *lucos* umbras a dici Achillea silvis.
